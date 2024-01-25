@@ -1,3 +1,0 @@
-# WELCOME TO MY PORTFOLIO! FEEL FREE TO GIVE YOUR FEEDBACKS.
-
-[(feedbacks)](https://forms.gle/iKN9t1SzJ88UA7Jz6). 
